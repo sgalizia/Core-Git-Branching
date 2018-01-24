@@ -22,7 +22,16 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Raptor Jesus met the Unicorn King who granted him magic powers. Using his magic powers, Raptor Jesus tracks down Lord Monochrome and defeats him in an epic duel.
+Raptor Jesus finds the Unicorn King who tells him of his captor, the Zookeeper. The Unicorn King says he will give Raptor Jesus magical powers if he can help him escape from the terrible Zookeeper.
+
+Raptor Jesus agrees to help the Unicorn King. The Unicorn King, keeping his promise, grants Raptor Jesus magical powers that allow him to hunt with compelete stealth.
+
+Raptor Jesus uses his new stealth powers to track down the Zookeeper in the food court. Raptor Jesus whips out his laser sword and challenges the Zookeeper, Darth Reptilius, to a fight to the death. A crazy battle ensues destroying most of the food court in the process.
+
+At last Raptor Jesus strikes the death blow, defeating Darth Reptilius. Raptor Jesus returns to the Unicorn King and sets him free. In a twist of fate, the Unicorn King runs Raptor Jesus through with his horn.
+
+In shock and disbelief, Raptor Jesus collapses on the ground, his lifeblood draining as the Unicorn King starts to change shape. With a bellowing evil laugh, the Unicorn King shifts into the shape of Lord Monochrome.
+
 The end.
 
 ## Cast
