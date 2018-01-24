@@ -22,7 +22,8 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Raptor Jesus met the Unicorn King who granted him magic powers.
+Raptor Jesus finds the Unicorn King who tells him of his captor, the Zookeeper. The Unicorn King says he will give Raptor Jesus magical powers if he can help him escape from the terrible Zookeeper.
+
 The end.
 
 ## Cast
